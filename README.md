@@ -1,1 +1,1 @@
-# rsschool-cv
+https://siarheichura.github.io/rsschool-cv/
